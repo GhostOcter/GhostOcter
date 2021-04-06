@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @GhostOcter, also known as Théo Molinié.
+- 👀 I’m interested in all sorts of informatic, physics and chemistry.
+- 🌱 I’m constantly learning, being very curious by nature.
